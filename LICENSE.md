@@ -1,4 +1,4 @@
-# 
+# Novo PDF-XChange Editor modelos para Mac OS | Código aberto PDF-XChange Editor modelos para PC Windows. Com suporte de auditoria e captura de recibos — otimizado para máximo desempenho em cada plataforma.
 
 
 
